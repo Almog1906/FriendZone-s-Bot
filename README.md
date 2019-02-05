@@ -1,0 +1,2 @@
+# FriendZone-s-Bot
+sd
